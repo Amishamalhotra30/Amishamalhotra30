@@ -2,7 +2,7 @@
 - 👀 I’m interested in programming
 - 🌱 I’m currently learning C and Python
 - 💞️ I’m looking to collaborate on projects
-- 📫 How to reach me Email- amishamalhotra3030@gmail.com 
+- 📫 How to reach me.....
 - 😄 Pronouns: she/her
 - ⚡ Fun fact: ...
 
